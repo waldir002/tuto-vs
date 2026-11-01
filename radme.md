@@ -4,3 +4,4 @@ El frío en tus venas te va a congelar,
 la noche ha empezado, no puedes escapar.
 Un paso en el suelo, un crujido en el mal,
 este es el juego de tu hora final.
+picaro picaro lero lerooo lerooo raaaaa!!!!
